@@ -1,1 +1,1 @@
-POLINA G
+POLINA
